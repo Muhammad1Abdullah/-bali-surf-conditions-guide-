@@ -48,7 +48,7 @@ Uluwatu and the surrounding coastline are well known for their surfing opportuni
 
 When comparing surf lessons in Uluwatu, consider the instructor's experience, safety guidance, lesson structure, and ability to adapt coaching to your needs. Private and small-group sessions can also provide opportunities for more personalized feedback.
 
-For those looking to develop their surfing fundamentals, [SoulFlow Surf Bali](https://YOUR-SOULFLOW-URL) offers private surf lessons, semi-private sessions, and small-group coaching around Balangan Beach and the wider Uluwatu area. Its approach focuses on helping surfers build confidence, improve their technique, and develop a better understanding of ocean conditions.
+For those looking to develop their surfing fundamentals, [SoulFlow Surf Bali](https://soulflowsurf.com/blog) offers private surf lessons, semi-private sessions, and small-group coaching around Balangan Beach and the wider Uluwatu area. Its approach focuses on helping surfers build confidence, improve their technique, and develop a better understanding of ocean conditions.
 
 Choosing a lesson that matches your ability and the conditions of the day can make your Bali surfing experience more rewarding.
 
